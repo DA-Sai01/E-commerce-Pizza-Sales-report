@@ -8,7 +8,8 @@ Dashbord PNG's
 
 **Home**
 
-![image](https://github.com/user-attachments/assets/0dcd8733-23d8-4ce8-9323-e57b4aa0ff93)
+![image](https://github.com/user-attachments/assets/746d5dee-8e46-4f6e-8ba4-93efa525a8c7)
+
 
 **Granulairy**
 
